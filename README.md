@@ -1,2 +1,0 @@
-# Ben-Harrison-coaching
-Projects
